@@ -16,4 +16,4 @@ Today's vibe: [song](https://www.youtube.com/watch?v=5Di20x6vVVU).
 
 Worked on Japanese for 3 more hours
 
-K 5:30, now I'm sad [:<](https://open.spotify.com/track/3jXl94Bd3ONk4yTVgYPR30?si=f1a897ec16c6441b). Not sad cuz of memories, just the song just makes me sad.
+K 5:30, now I'm sad [:<](https://open.spotify.com/track/3jXl94Bd3ONk4yTVgYPR30?si=f1a897ec16c6441b). Not sad cuz of memories, just the song just makes me sad. k screw this ima go nap if im sad. unproductive anyways.
