@@ -23,3 +23,5 @@ hmm, I am so confused what are some people's thought process. BABY I WONDER WHY 
 25/21 - EP 7- Kyle gives good reccs
 
 "Trust begins with expectation". This story is so sweet so far and funny. Happiness is the clear theme so far. Something I don't value ..., however it changed my outlook in life. Just need to practice being more cheerful or look for the positives. Back Yi-Jin is the real life version of not giving a fuck and giving a fuck to correct values. Hmm. His mood is immedietely uplifted when with Na Hee-Do. The things he gives a fuck for negatively, all disappear in one glance. His metric with her is happiness, while without is to get a stable job so far.
+
+EP 4 44:10-44:13 is a funny scene
