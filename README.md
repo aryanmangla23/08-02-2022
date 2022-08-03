@@ -16,4 +16,7 @@ Today's vibe: [song](https://www.youtube.com/watch?v=5Di20x6vVVU).
 
 Worked on Japanese for 3 more hours
 
-K 5:30, now I'm sad [:<](https://open.spotify.com/track/3jXl94Bd3ONk4yTVgYPR30?si=f1a897ec16c6441b). Not sad cuz of memories, just the song just makes me sad. k screw this ima go nap if im sad. unproductive anyways.
+K 5:30, now I'm sad [:<](https://open.spotify.com/track/3jXl94Bd3ONk4yTVgYPR30?si=f1a897ec16c6441b). Not sad cuz of memories, just the song just makes me sad.
+
+hmm, I am so confused what are some people's thought process. BABY I WONDER WHY WE DONT GET ALONG IT DRIVES ME CRAZY, I CANT DENY. I LOVE WHEN WE MAKE UP. IT FEELS AMAZING WHY DONT WE TRY. IK YOU LOVE ME WHEN YOU SAY THAT YOU HATE ME I WONDER WHY YOU HATE ME I WONDER WHY. This song makes me think about things I don't want to. sak fd, afasfl,as fsafmfafkfa;fmf;asfa;fmamf; k. I think a lot from this song, cuz I WONDER WHY. k now after spamming this song Ik why it makes me mad/sad fuck k. "slamming doors". I am relating cuz life is funny. k identified it, but not gonna say why 😊 
+
