@@ -26,4 +26,9 @@ hmm, I am so confused what are some people's thought process. BABY I WONDER WHY 
 
 EP 4 44:10-44:13 is a funny scene
 
-This is the first time a show is making me cry
+This is the first time a show is making me cry. 2:45 AM RN. starting ep 9 of 25/21. 
+
+I look at this image when I'm sad, and everything falls back into place
+
+![IMG_4D6C63A03C68-1](https://user-images.githubusercontent.com/55885627/182578938-9dfb5823-cf1d-4b7a-9a41-9c529aa5e471.jpeg)
+
