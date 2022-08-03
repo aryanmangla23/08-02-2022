@@ -20,3 +20,6 @@ K 5:30, now I'm sad [:<](https://open.spotify.com/track/3jXl94Bd3ONk4yTVgYPR30?s
 
 hmm, I am so confused what are some people's thought process. BABY I WONDER WHY WE DONT GET ALONG IT DRIVES ME CRAZY, I CANT DENY. I LOVE WHEN WE MAKE UP. IT FEELS AMAZING WHY DONT WE TRY. IK YOU LOVE ME WHEN YOU SAY THAT YOU HATE ME I WONDER WHY YOU HATE ME I WONDER WHY. This song makes me think about things I don't want to. sak fd, afasfl,as fsafmfafkfa;fmf;asfa;fmamf; k. I think a lot from this song, cuz I WONDER WHY. k now after spamming this song Ik why it makes me mad/sad fuck k. "slamming doors". I am relating cuz life is funny. k identified it, but not gonna say why 😊 
 
+25/21 - EP 7- Kyle gives good reccs
+
+"Trust begins with expectation". This story is so sweet so far and funny. Happiness is the clear theme so far. Something I don't value ..., however it changed my outlook in life. Just need to practice being more cheerful or look for the positives. Back Yi-Jin is the real life version of not giving a fuck and giving a fuck to correct values. Hmm. His mood is immedietely uplifted when with Na Hee-Do. The things he gives a fuck for negatively, all disappear in one glance. His metric with her is happiness, while without is to get a stable job so far.
